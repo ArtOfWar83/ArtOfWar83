@@ -1,4 +1,4 @@
-I’m interested in anything engineering... primarily video amd broadcast systems, which I currently work in. I am also highly interested in AI and app creation. I have many ideas that am working toawrds that can help better the broadcast industry.
+
 
 
 <!---
